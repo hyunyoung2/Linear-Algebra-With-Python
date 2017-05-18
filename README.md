@@ -12,7 +12,7 @@ probability and statistic, Linear algebra and mulitivariable caculus.
 
 it's just fundamental math I will have continued for it with Khan Academy. 
 
-Maybe If you want to know and study it with my orgarnization, just refer to [hyunyoung2 blog - later on I will register it.]()
+Maybe If you want to know and study it with my organization, just refer to [hyunyoung2 blog - later on I will register it.]()
 
 Thank you for your reading. 
 
